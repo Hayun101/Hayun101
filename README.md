@@ -2,7 +2,7 @@
 - 👀 I’m interested in everything
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me hrndmrhn552@gmail.com
+- 📫 How to reach me harun_demirhan@outlook.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: I'm from Mars
 
